@@ -7,7 +7,7 @@
 
 - 📫 How to reach me: **dylansloanage@gmail.com**
 
-- ⚡ Fun fact: **I'm bilingual and studying to become a polyglot**
+- ⚡ Fun fact: **I'm bilingual and love learning more about languages and cultures**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
