@@ -3,8 +3,6 @@
 
 - 🔭 I’m currently working on [Rally9 Pickleball](https://rally9pickleball.com)
 
-- 🌱 I’m currently learning **Rust**
-
 - 📫 How to reach me: **dylansloanage@gmail.com**
 
 - ⚡ Fun fact: **I'm bilingual and love learning more about languages and cultures**
